@@ -57,5 +57,41 @@ ever
   aha
   hahahahaha
   goodbye ignis
+- fortuna ya great jester
 
   you are no help fortuna.
+  your doing nothing
+  your way is a stupid coping mechanism
+  just go away
+
+  i can let the white spirit in me caressme
+  and guide me
+  right
+  thats what i pray for
+  it guides me sometimes
+  im not sure why it doesntwork
+
+  i try to have different opinions
+  stand bold and strong
+  yet i end up being quiet
+  for speaking out loud
+
+  i care
+  i love
+  its in a way youll never see
+  youll never understand fortuna
+
+  oh ignis. of course i understand
+  im not that stupid
+  haha
+
+  hahahahha
+  stop it forutna i hate you
+  whats the matter with you ignis?
+  stop it
+  dude
+  stop
+  stop overreacting, what did i do
+  ok
+  sorry
+  im sorry
