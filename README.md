@@ -1,5 +1,7 @@
 # dear-diary
 
+a reflection of my feelings depicted onto season 8, roblox bedwars
+
 3/17/2026
 
 i feel unusual. im always like. dry nowadays
@@ -20,3 +22,40 @@ and
 ever
 
 - written by ignis
+
+  your crazy if anyone would like ya, ignis
+  especially because of your character
+  why dont you become a jester. like me!
+  colorful. prideful. a people pleaser
+
+  i make them laugh
+  in exchange i get attention from them
+  and i laugh too
+  not because they pour all over me
+  im having so much fun too
+
+  but
+  your relatable too
+  i hate when the fun goes away!
+  it
+  sucks
+  right.?????????????????????????????????????
+
+  ha
+  ha
+  hahahahahhaha
+
+  your such a loser. just be happy
+  it isnt that hard
+  im not sure why
+  you laugh sometimes
+  and you say
+  your depressed
+  ignis
+  thats silly and sum b.s!
+
+  aha
+  hahahahaha
+  goodbye ignis
+
+  you are no help fortuna.
